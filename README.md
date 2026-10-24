@@ -13,4 +13,4 @@ The Order:
 10. Current System vs Constitution
 11. Distributed Commonwealth vs Constitution
 12. The Cleanest Solution
-
+All Books Combined = power
